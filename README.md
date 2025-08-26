@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there 👋!
+[365688121_685811550256979_7683412737318879462_n](https://github.com/user-attachments/assets/83cf4f42-e456-41c7-9c12-27d386b19ddd)
+
 
 <!--
 **shazmsm/shazmsm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
